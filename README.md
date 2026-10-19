@@ -8,7 +8,7 @@ Glad to see you on my profile :3
 
 I ❤️ Software dev, 💻 Self-taught Backend Engineer
 
-🌍 Languages: English B1 · Polish C2 · Ukrainian C2
+🌍 Languages: English B2 · Polish C2 · Ukrainian C2
 
 Working: I work for myself, but > Your company can be here 🌌 <
 
